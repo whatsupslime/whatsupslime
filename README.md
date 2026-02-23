@@ -13,3 +13,6 @@
        <p align="center">
      + proship/darkship dni
 some of yall corny af 
+
+ <p align="center">
+ dandy's world & deltarune <img src="https://pixels.crd.co/assets/images/gallery07/2c628213.gif?v=b3554822">
