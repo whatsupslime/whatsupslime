@@ -11,8 +11,7 @@
      <p align="center">
      any minors around 17 limit your interaction with me and dont say sexual shit towards me
        <p align="center">
-     + proship/darkship dni
-some of yall corny af 
+     ship discourse + proship/darkship dni
 
  <p align="center">
  dandy's world & deltarune <img src="https://pixels.crd.co/assets/images/gallery07/2c628213.gif?v=b3554822">
