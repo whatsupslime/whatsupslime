@@ -14,4 +14,4 @@
      ship discourse + proship/darkship dni
 
  <p align="center">
- dandy's world & deltarune <img src="https://pixels.crd.co/assets/images/gallery07/2c628213.gif?v=b3554822">
+ dandy's world, fandom iwec <img src="https://pixels.crd.co/assets/images/gallery07/2c628213.gif?v=b3554822">
