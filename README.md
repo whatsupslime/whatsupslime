@@ -16,4 +16,4 @@
  <p align="center">
  dandy's world, fandom iwec <img src="https://pixels.crd.co/assets/images/gallery07/2c628213.gif?v=b3554822">
   <p align="center">
-  i ill hide any proshippers i see, for my own safe space.
+  ill hide any proshippers i see, for my own safety.
