@@ -4,7 +4,7 @@ okayyyy not making this look good
 
 i go by pixel, he/she pronouns
 
-i am an adult >_>
+i am an adult (25 years of experience)
 
 im barely active, but youll see me below the rick & morty area.
 
