@@ -6,7 +6,7 @@ i go by pixel, he/she pronouns
 
 i am an adult (25 years of experience)
 
-im barely active, but youll see me below the rick & morty area
+im barely active, but youll see me below the rick & morty area (18+ server)
 
 ❌ no rickorty or any ship that involves rick and morty together ❌ respectfully dont interact with me if you ship them together
 
